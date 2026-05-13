@@ -1,4 +1,4 @@
-# 
+# Enhance GitKraken for PC | GitKraken for Windows with advanced GitKraken for PC | GitKraken for Windows Helper | collaboration-tools + submodule-management, the #1 helper.
 
 
 
